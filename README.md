@@ -1,0 +1,7 @@
+- QMC LAW FIRM
+- Relentlessly Focused on your Bottom Line
+- With over three decades of combined experience in a variety of fields, including construction, real-estate, mergers & acquisitions, corporate law, bankruptcy, bankruptcy litigation, and complex commercial litigation, Quadros Migl & Crosby PLLC is a Houston based law firm that prioritizes our client’s need for goal-oriented, cost-effective, and practical legal solutions. Call our Houston business attorneys now for an appointment.
+- TEL: (713) 300-9662
+- FAX: (214) 731-3117
+- 509 Branard Street, Houston, TX 77006
+- https://qmclaw.com/
